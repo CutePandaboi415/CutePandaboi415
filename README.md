@@ -1,0 +1,4 @@
+- Hoi, I’m @CutePandaboi415
+- 👀 I’m interested in wanting to become gud at coding and find intrestring projects uwu
+- 🌱 I’m currently learning coding like Python and C++~ 
+- 📫 How to reach me just send me a message or on Discord~ ‧͙⁺˚*･༓☾Pandaastronout☽༓･*˚⁺‧͙#6480
